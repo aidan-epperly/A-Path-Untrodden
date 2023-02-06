@@ -1,0 +1,3 @@
+## Sending Money Home
+---
+Raylon is a good guy, working as a Lancer to send money back home to his family. Things were not going well at home, so he left in the dead of night looking for work wherever he could find it. Raylon wanted to do good and get some money for his family, so he enlisted with Union. However, for some reason, Raylon was not a good fit. So, he left the service and enlisted with [[Unlimited Solutions]].

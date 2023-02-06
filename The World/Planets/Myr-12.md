@@ -1,0 +1,1 @@
+Small industrial moon of a gas giant. Four blinks from the [[Independent Merchant Association Station-27A]].
